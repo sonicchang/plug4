@@ -1,6 +1,31 @@
 # plug4
 blog post about management of plug 'n play art installation
 
+This past summer I learned about the importance of fluffing. At Burning Man, fluffing is the task of taking care of the workers. Burning Man takes place in an environment that is harsh by any standard: hot, dry, dusty, windy, dry. 
+
+I was a part of the team that brought a major art installation, Plug 'n Play, to Burning Man 2016. Our project was six wood frame structures, between 14 and 30 feet high, shaped like five quad electrical outlets and an extension cord plug. The structures would house art, music, video, and workshops, all about the five elements of hip hop. It was a success, and I was so proud of how our project was more than just something pretty to look at.
+
+Burning Man participants are naturally disposed to "participate" and many participate by 
+
+It occurred to me
+about the importance of fluffing
+
+
+that in order to get the job done, you have to fluff your team.
+
+Unplanned
+
+Over the course of the two weeks I was out there, our team was approached by:
+- A man and a woman in a decorated golf cart who came by to thank us for the art and to giftus two bags of ice
+- Any number of individuals who experienced our art and then gifted 
+
+It occured to 
+
+
+
+Now Burning Man takes place in an environment that 
+
+
 the points i want to make are:
 - know your success criteria
 it wasn't our burn, it was leaving the playa with no trace, and returning all our rental equipment
