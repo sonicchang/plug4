@@ -1,40 +1,20 @@
 # plug4
 blog post about management of plug 'n play art installation
 
-This past summer I learned about the importance of fluffing. At Burning Man, fluffing is the task of taking care of the workers. Burning Man takes place in an environment that is harsh by any standard: hot, dry, dusty, windy, dry. 
+Last summer, I learned about the importance of fluffing. Now I want to bring fluffing into the workplace. It's not what you think! But it will help you get the job done.
 
-I was a part of the team that brought a major art installation, Plug 'n Play, to Burning Man 2016. Our project was six wood frame structures, between 14 and 30 feet high, shaped like five quad electrical outlets and an extension cord plug. The structures would house art, music, video, and workshops, all about the five elements of hip hop. It was a success, and I was so proud of how our project was more than just something pretty to look at.
+I was a part of the team that brought a major art installation called Plug 'n Play to Burning Man 2016. Our project was six wood frame structures, between 14 and 30 feet high, shaped like five quad electrical outlets and an extension cord plug. The structures housed art, music, video, and workshops, all geared towards educating participants about the five elements of hip hop. And at the end of the event, we burned down our structures with six fiery explosions.
 
-Burning Man participants are naturally disposed to "participate" and many participate by 
+Although I hadn't been to Burning Man in eight years, I was eager to get involved. I appled my professional skills to many aspects of the project, from project managing our burn to developing our social media presence. But as someone who has worked straight-up office jobs all my professional life, I was most thrilled about being involved with the construction of Plug 'n Play. After working in software for so many years, the opportunity to help build something physical fulfilled some kind of primal need I didn't know I had.
 
-It occurred to me
-about the importance of fluffing
+I learned so much during the fabrication of our structures, which culminated in "Build Week" on playa, the week before Burning Man. I always knew construction would be physically taxing. And Burning Man takes place in an environment that is harsh by any standard: hot, dry, dusty, with the occasional freak storm. You can imagine just how intense Build Week is. It's just working as hard as you can to hit an immovable deadline while nature is throwing its worst at you.
 
+Early on, we were working in the heat of the day when a friendly couple drove up in a golf cart. "Hi, what are you working on?" "We're called Plug 'n Play." "Looks cool! Want some ice?" Taken aback because I was caught up in trying to figure out how much wood we had left or something, I responded vacantly, "Huh?" They said, "Well, it's hot out, and we thought you might want some ice." And they gifted us two bags of ice, departing with a cheerful, "Thank you for your art!"
 
-that in order to get the job done, you have to fluff your team.
+Acording to the Burning Man Glossary, a Fluffer is "a volunteer who supports other volunteer teams in the field, i.e., by replenishing their drinking water." Over the course of Build Week and the week of Burning Man, our group was approached by many Fluffers, who always seemed to show up at the perfect time. Different people -- friends and strangers -- gifted our crew anything from smoothies and hugs to cold drinks and fresh-baked cookies. And always with the same message of gratitude, "Thank you for your art!"
 
-Unplanned
+It made toiling through dust storms tolerable, reminded us that the work that we were doing was appreciated, and motivated us to do our jobs well. Would we have finished our project without the Fluffers? Yes. But that's not the right question. The benefits of fluffing went far beyond just quenching a thirst. I found that I had a real emotional response each time a complete stranger came by and offered something that I didn't know I needed until just that moment.
 
-Over the course of the two weeks I was out there, our team was approached by:
-- A man and a woman in a decorated golf cart who came by to thank us for the art and to giftus two bags of ice
-- Any number of individuals who experienced our art and then gifted 
+As I returned to normal life, it occurred to me that fluffing is something that can be brought into office environments. Sure, you probably have a comfortable chair; your office is temperature controlled; and there's a bathroom down the hall with toilets that flush. But anyone who has done their time pounding away on laptops for hours under flourscent lights to meet a deadline knows just how taxing and stressful that can be. The threat of mental burnout in an office is similar to the threat of physical exhaustion in the desert.
 
-It occured to 
-
-
-
-Now Burning Man takes place in an environment that 
-
-
-the points i want to make are:
-- know your success criteria
-it wasn't our burn, it was leaving the playa with no trace, and returning all our rental equipment
-but since the project was volunteer and donor-based, we also had to ensure participants felt our gratitude for having taken part. otherwise, we would have failed.
-
-
-- good communication (clarity, responsiveness)
-with a project that had team members in new york, austin, the bay area, portland, and los angeles, it was important to have a centralized way to communicate but even more important the effect the communication had on gaining more supporters. if you don't communicate, sometimes people will assume nothing's happening. in some cases, that was in fact true! but in most cases, there were many tracks moving forward.
-
-- take care of yourself and others (physical burnout vs. just mental) fluffing
-
-i've worked in an office environment all my professional life. compared to the playa, office environments are comfy. on playa, where the physical environment is harsh and unforgiving. dust, wind, heat, dehydration, physical exhaustion, etc. we would have people come by with drinks and snacks, and to say hey, take a break becaue the threat of physically exhaustion is real. but i reawluzed, it's the same in an office. they try to make it easy to just keep going. but the risk of burn out is still real.
+So ask yourself if anyone on your teams needs to get a little fluffing. And it's not just about having snacks available in the kitchen! Fluffing is personal, proactive, and comes with gratitude. Try...
