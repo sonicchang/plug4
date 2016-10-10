@@ -1,6 +1,6 @@
 # plug4
 
-Last summer, I learned about the importance of fluffing. Now I want to bring fluffing into the workplace. It's not what you think! But it can help you get the job done with happy people.
+Last summer, I learned about the importance of fluffing. Now I want to bring fluffing into the workplace. It's not what you think.
 
 I was a part of the team that brought a major art installation called Plug 'n Play to Burning Man 2016. Our project was six wood frame structures, between 14 and 30 feet high, shaped like five quad electrical outlets and an extension cord plug. Our structures housed art, music, video, and workshops. And at the end of the event, we burned it all down with six fiery explosions.
 
