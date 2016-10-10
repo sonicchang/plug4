@@ -1,11 +1,10 @@
 # plug4
-blog post about management of plug 'n play art installation
 
 Last summer, I learned about the importance of fluffing. Now I want to bring fluffing into the workplace. It's not what you think! But it will help you get the job done.
 
 I was a part of the team that brought a major art installation called Plug 'n Play to Burning Man 2016. Our project was six wood frame structures, between 14 and 30 feet high, shaped like five quad electrical outlets and an extension cord plug. Our structures housed art, music, video, and workshops. And at the end of the event, we burned it all down with six fiery explosions.
 
-Although I hadn't been to Burning Man in eight years, I was eager to get involved. I appled my professional skills to many aspects of the project, from project managing our burn to developing our social media presence. But as someone who has worked straight-up office jobs all my professional life, I was most thrilled about being involved with the construction of Plug 'n Play. After working in software for so many years, the opportunity to help build something physical fulfilled some kind of primal need I didn't know I had.
+Although I hadn't been to Burning Man in eight years, I was eager to get involved with the team. I appled my professional skills to many aspects of the project, from project managing our burn to developing our social media presence. But as someone who has worked straight-up office jobs all my professional life, I was most thrilled about being involved with the construction of Plug 'n Play. After working in software for so many years, the opportunity to help build something physical fulfilled some kind of primal need I didn't know I had.
 
 I learned a lot about construction during the fabrication of our structures, which culminated in "Build Week" on playa (the week before Burning Man). But I also learned unexpected lessons. I always knew construction would be physically taxing. And Burning Man takes place in an environment that is harsh by any standard: hot, dry, dusty, with the occasional freak storm. You can imagine just how intense Build Week is. It's just working as hard as you can to hit an immovable deadline while nature is throwing its worst at you.
 
