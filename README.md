@@ -8,7 +8,7 @@ Although I hadn't been to Burning Man in eight years, I was eager to get involve
 
 But as someone who has worked straight-up office jobs all my professional life, I was most thrilled about being involved with the construction of Plug 'n Play. After working in software for so many years, the opportunity to help build something physical fulfilled some kind of primal need I didn't know I had.
 
-I learned a lot about construction during the fabrication of our structures, which culminated in "Build Week" on playa (the week before Burning Man). But I took away some unexpected lessons as well.
+I learned a lot about construction during the fabrication of our structures, which culminated in "Build Week" on playa, the week before Burning Man. But I took away some unexpected lessons as well.
 
 I always knew construction would be physically taxing. And Burning Man takes place in an environment that is harsh by any standard: hot, dry, dusty, with the occasional freak storm. You can imagine just how intense Build Week is. It's just working as hard as you can to hit an immovable deadline while nature is throwing its worst at you.
 
