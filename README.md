@@ -10,7 +10,7 @@ But as someone who has worked straight-up office jobs all my professional life, 
 
 I learned a lot about construction during the fabrication of our structures, which culminated in "Build Week" on playa, the week before Burning Man. But I took away some unexpected lessons as well.
 
-I always knew construction would be physically taxing. And Burning Man takes place in an environment that is harsh by any standard: hot, dry, dusty, with the occasional freak storm. You can imagine just how intense Build Week is. It's just working as hard as you can to beat an hard deadline while nature is throwing its worst at you.
+I always knew construction would be physically taxing. And Burning Man takes place in an environment that is harsh by any standard: hot, dry, dusty, with the occasional freak storm. You can imagine just how intense Build Week is. It's just working as hard as you can to beat a hard deadline while nature is throwing its worst at you.
 
 Early on, we were working in the heat of the day when a friendly couple drove up in a golf cart. "Hi, what are you working on?" "We're called Plug 'n Play." "Looks cool! Want some ice?" Taken aback because I was caught up in some construction task, I responded vacantly, "Huh?" They said, "Well, it's hot out, and we thought you might want some ice." And they gifted us two bags of ice, departing with a cheerful, "Thank you for your art!"
 
