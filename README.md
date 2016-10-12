@@ -4,7 +4,7 @@ Last summer, I learned about the importance of fluffing. Now I want to bring flu
 
 So what did I do last summer? I was on the team that was brought a major art installation called Plug 'n Play to Burning Man 2016. Our project was six wood frame structures, between 14 and 30 feet high, shaped like five quad electrical outlets and an extension cord plug. Our structures housed art, music, video, and workshops. And at the end of the event, we burned it all down with six fiery explosions.
 
-Although I hadn't been to Burning Man in eight years, I was eager to get involved with the team. I appled my professional skills to many aspects of the project, from project managing our burn to developing our social media presence.
+Although I hadn't been to Burning Man in eight years, I was eager to get involved with the team. I applied my professional skills to many aspects of the project, from project managing our burn to developing our social media presence.
 
 But as someone who has worked straight-up office jobs all my professional life, I was most thrilled about being involved with the construction of Plug 'n Play. After working in software for so many years, the opportunity to help build something physical fulfilled some kind of primal need I didn't know I had.
 
