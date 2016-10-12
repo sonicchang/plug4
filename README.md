@@ -1,4 +1,4 @@
-# plug4
+# Have You Fluffed Your Team Today?
 
 Last summer, I learned about the importance of fluffing. Now I want to bring fluffing into the workplace! (But it's not what you think.)
 
