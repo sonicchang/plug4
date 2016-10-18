@@ -1,4 +1,4 @@
-# Have You Fluffed Your Team Today?
+# Fluffing in the Workplace
 
 Last summer, I learned about the importance of fluffing. And now, I want to bring fluffing into the workplace! (But it's not what you think.)
 
