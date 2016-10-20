@@ -22,4 +22,4 @@ As I returned to normal life, it occurred to me that the spirit of fluffing can 
 
 So ask yourself if anyone at your workplace needs a little fluffing. And it's not just about having snacks available in the kitchen! Fluffing is personal, proactive, and comes with gratitude. If someone's working hard, surprise them with a delicious sandwich. Maybe a beer. Or get creative with a nice plant for their desk.
 
-But most importantly, don't forget to thank them.
+But most importantly, don't forget to thank them. It will make a difference in their day and in their work.
