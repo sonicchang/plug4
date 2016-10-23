@@ -2,9 +2,9 @@
 
 Last summer, I learned about the importance of fluffing. And now, I want to bring fluffing into the workplace! (But it's not what you think.)
 
-I learned about fluffing at Burning Man. I was on the team that was brought a major art installation called Plug 'n Play to Burning Man 2016. Our project was six wood frame structures, between 14 and 30 feet high, shaped like five quad electrical outlets and an extension cord plug. Our structures housed art, music, video, and workshops. And at the end of the event, we burned it all down with six fiery explosions.
+I learned about fluffing at <a href="http://burningman.org/" target="_blank"<a>Burning Man</a>. I was on the team that was brought a major art installation called <a href="http://plug4.com/" target="_blank"<a>Plug 'n Play</a> to Burning Man 2016. Our project was six wood frame structures, between 14 and 30 feet high, shaped like five quad electrical outlets and an extension cord plug. Our structures housed art, music, video, and workshops. And at the end of the event, we burned it all down with six fiery explosions.
 
-Although I hadn't been to Burning Man in eight years, I was eager to get involved with the team. I applied my professional skills to many aspects of the project, from project managing our burn to developing our social media presence.
+Although I hadn't been to Burning Man in eight years, I was eager to get involved with the team. I applied my professional skills to many aspects of the project, from project managing our burn to developing our <a href="https://www.facebook.com/PlugnPlay2016/" target="_blank"<a>social media presence</a>.
 
 But as someone who has worked straight-up office jobs all my professional life, I was most thrilled about being involved with the construction of Plug 'n Play. After working in software for so many years, the opportunity to help build something physical fulfilled some kind of primal need I didn't know I had.
 
