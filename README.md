@@ -6,7 +6,7 @@ I learned about fluffing at <a href="http://burningman.org/" target="_blank"<a>B
 
 Although I hadn't been to Burning Man in eight years, I was eager to get involved with the team. I applied my professional skills to many aspects of the project, from <a href="https://docs.google.com/document/d/1ijZojhSXJbPKl59fonIetqG0NltLGI0q4itjesA7dTs/edit?usp=sharing" target="_blank"<a>planning and managing our burn</a> to developing our <a href="https://www.facebook.com/PlugnPlay2016/" target="_blank"<a>social media presence</a>.
 
-But as <a href="https://www.linkedin.com/in/liliechangfine"> target="_blank"<a>someone who has worked straight-up office jobs all my professional life</a>, I was most thrilled about being involved with the construction of Plug 'n Play. After working in software for so many years, the opportunity to help build something physical fulfilled some kind of primal need I didn't know I had.
+But as <a href="https://www.linkedin.com/in/liliechangfine" target="_blank"<a>someone who has worked straight-up office jobs all my professional life</a>, I was most thrilled about being involved with the construction of Plug 'n Play. After working in software for so many years, the opportunity to help build something physical fulfilled some kind of primal need I didn't know I had.
 
 I learned a lot about construction during the fabrication of our structures, which culminated in "Build Week" on playa, the week before Burning Man. But I took away some unexpected lessons as well.
 
